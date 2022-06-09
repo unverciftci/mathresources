@@ -54,6 +54,8 @@ https://happycoding.io/
 
 https://www.codeforlife.education/
 
+https://mathequalslove.net/blog/
+
 https://www.eie.org/
 
 https://ciechanow.ski/gps/
