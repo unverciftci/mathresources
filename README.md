@@ -62,3 +62,6 @@ https://www.eie.org/
 
 https://ciechanow.ski/gps/
 
+https://www.purposefulmaths.com/
+
+https://mathinsight.org/
