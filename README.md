@@ -14,6 +14,8 @@ https://www.funmathfan.com/
 
 https://mathigon.org/
 
+https://www.foster77.co.uk/
+
 https://mathforlove.com/websites-we-like/
 
 https://www.mathasasecondlanguage.org/
